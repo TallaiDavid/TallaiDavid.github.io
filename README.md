@@ -1,1 +1,0 @@
-# TallaiDavid.github.io
